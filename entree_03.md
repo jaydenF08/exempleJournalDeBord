@@ -12,10 +12,10 @@ Animateur 2D-3D (peut-être)
 technicien?
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+je dirais que j'aimerais bien profiter de ma profession chez ubisoft car il ya beaucoup de jeu que j'ai joué qui est en lien avec cette compagnie depuis mon plus jeune âge.
 
 ### Dans 5 ans
-Où vous voyez-vous dans 5 ans? 
+Pour l'instant c'est assez flou mais je crois que dans 5 ans je me vois travailler ma profession et peut-être avoir ma propre maison
 
 ### Projets
-Expliquez un ou des projets que vous aimeriez faire. 
+Partir en voyage pour le japon ferait peut-être partie d'un des projets que je voudrais faire car j'aime bien leur culture et leur habitude qui est très différent d'ici.
