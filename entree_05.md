@@ -11,8 +11,8 @@ pas grand chose. je ne changerais pas ma méthode qui est de prendre des notes e
 3h suffisait parfaitement pour compléter mon examen
 
 ### Outils et ressources
-mes notes
+mes notes que j'ai pris pour avoir une meilleure compréhension avant l'examen
 
 ### Difficultés
-aucune, il faut juste étudier pour pouvoir faire l'examen facilement
+aucune, j'ai suffisamment étudier pour me préparer à cette examen et donc je l'ai trouvé plutôt facile.
 
